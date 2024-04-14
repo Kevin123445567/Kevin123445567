@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kevin123445567
 - 👀 I’m interested in the poop
-- 🌱 I’m currently how to make a green pooh 
+- 🌱 I’m learning how to make a green pooh 
 - 💞️ I’m looking to collaborate on a float
 - 📫 How to reach me with a shit
 - 😄 Pronouns: HIHIH
